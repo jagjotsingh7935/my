@@ -1,3 +1,3 @@
 # my
 <br>
-Author-Jagjot singh
+Author-Jagjot singh(IT)
